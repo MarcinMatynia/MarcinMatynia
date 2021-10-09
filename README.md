@@ -1,4 +1,4 @@
-# Hello, I am Martin 👋
+# Hello, I am Marcin 👋
 
 ### 🛠 &nbsp;Tech Stack
 
