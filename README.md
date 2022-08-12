@@ -13,7 +13,7 @@
 ## <br />Connect with me 🌍
 
 ### 🔗 [Linkedin](https://www.linkedin.com/in/marcinmatynia/)
-### 📫 [E-mail](mailto:kontakt@marcinmatynia.it)
+### 📫 [E-mail](mailto:marcin@matynia.it)
 
 
 ## <br />My Github Stats 📈 
